@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WeaponSmith
-- 👀 I’m interested in learning, development, marvel, gaming, family
-- 🌱 I’m currently learning html, css, javascript, php, power apps, sql and so much more...so much...
+- 👀 I’m interested in learning, development, marvel, gaming, family, zelda, youtube
+- 🌱 I’m currently learning every code base imaginable...
 - 💞️ I’m looking to collaborate on learning
 - 📫 How to reach me...tbc!
 
