@@ -4,7 +4,7 @@ O_o
 
 A [link to the Past 👾](https://digitalsmithsolutions.com/). 
 
-A [LINK TO THE DEV-OPS 🤷🏻‍♂️]([[https://youtu.be/fiOMbqPHFwo](https://digitalsmithsolutions.com/hello_felo_teen_meme/)).
+A [LINK TO THE DEV-OPS 🤷🏻‍♂️](https://youtu.be/fiOMbqPHFwo](https://digitalsmithsolutions.com/hello_felo_teen_meme/)).
 
 <!---
 WeaponSmith/WeaponSmith is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
