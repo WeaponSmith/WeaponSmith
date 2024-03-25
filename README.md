@@ -2,6 +2,8 @@ ALWAYS TRYING TO DO BETTER
 
 O_o
 
+A [link to the Past 👾](https://digitalsmithsolutions.com/). 
+
 A [LINK TO THE DEV-OPS 🤷🏻‍♂️]([[https://youtu.be/fiOMbqPHFwo](https://digitalsmithsolutions.com/hello_felo_teen_meme/)).
 
 <!---
