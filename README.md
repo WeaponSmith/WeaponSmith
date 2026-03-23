@@ -1,4 +1,6 @@
-ALL WORK AND NO PLAY MAKES HOMER SOMETHING SOMETHING...
+commits are efforts taken to get rhings done
+training is a minute by minute proposition
+anything is possible so why not challenge yourself to do the impossible. 
 
 O_o
 
