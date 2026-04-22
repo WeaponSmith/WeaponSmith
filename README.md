@@ -1,6 +1,12 @@
-commits are efforts taken to get rhings done
+Determination, effort, stubborn will and never giving up. That defines who I am.
+I am more Jon Snow than expert, and as such, willing to learn from others and collaborate to achieve the impossible.
+
+My Quote - 
+there's nothing artificial about hard work and effort 
+if it was easy, what would you stand to gain?
+commits are efforts taken to get tings done
 training is a minute by minute proposition
-anything is possible so why not challenge yourself to do the impossible. 
+anything is possible so why not challenge yourself to do the impossible in the least unpossible way
 
 O_o
 
